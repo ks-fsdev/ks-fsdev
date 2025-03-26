@@ -1,5 +1,5 @@
 # 💫 Hi, I'm Khushi 
-🧩 Interning at WebGuard Info Solutions<br><br>🧠 currently making web games and apps using JavaScript to stay consistent<br><br>🎦 making videos on <a href="https://www.instagram.com/ks_fsdev/?igsh=MXA0bDUydHFuZHA4cg%3D%3D#">Instagram</a><br><br><br><br>non tech background<br><br><br>
+🧩 Interning at WebGuard Info Solutions<br><br>🧠 currently making web games and apps using JavaScript to stay consistent<br><br>🎦 making videos on <a href="https://www.instagram.com/ks_fsdev/?igsh=MXA0bDUydHFuZHA4cg%3D%3D#">Instagram</a>
 
 
 ## 🌐 Socials:
